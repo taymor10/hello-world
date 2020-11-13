@@ -6,7 +6,7 @@ Succession
 Chappelle Show
 Breaking Bad
 How To Make It In America
-GIRLS
+ATLANTA
 
 
 Top five movies:
