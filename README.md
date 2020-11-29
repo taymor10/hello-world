@@ -15,3 +15,11 @@ Friday
 The Conjuring
 Enemy
 Nocturnal Animals
+
+Top five albums:
+Frank Ocean - Blonde
+Drake - More Life
+Travis Scott - Astroworld
+Wiz Khalifa - Kush & Orange Juice
+Mac Miller - KIDS
+Missy Elliott - Supa Dupa Fly
